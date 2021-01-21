@@ -1,0 +1,2 @@
+# orat-oret-keriting
+Membaca
